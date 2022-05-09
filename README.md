@@ -13,3 +13,4 @@ eg:
 FTM Fantom General 1$ waiting room edition lol https://boards.4channel.org/biz/thread/48534748
 
 /XSG/ XRP Schizo General #1838 https://boards.4channel.org/biz/thread/48517524
+ 
